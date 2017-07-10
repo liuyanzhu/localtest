@@ -1,5 +1,8 @@
 Git is a version control system
-Git is free software distributed under the  GPL
+Git is freewer software distributed under the  GPL
 
 revert and resolved
-哈哈哈哈哈哈哈哈哈奥奥奥奥奥奥奥奥奥奥奥奥奥奥奥奥奥奥
+kejlkwjrekw哈哈哈哈哈哈哈哈哈奥奥奥奥奥奥奥奥奥奥奥奥奥奥奥奥奥奥
+
+djkshfl看见好的开发
+肯定是发了多少
